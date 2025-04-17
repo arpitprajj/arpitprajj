@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @arpit
 - 👀 I’m interested in coding 
-- 🌱 I’m currently studying BTech 
+- 🌱 I’m currently working 
 - 📫 email : arpitprajjwal17361@gmail.com
 
 
